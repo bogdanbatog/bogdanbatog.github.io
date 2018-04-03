@@ -1,1 +1,0 @@
-# bogdanbatog.github.io
